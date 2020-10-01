@@ -1,2 +1,2 @@
 # calculator
-here is an calculator made by me plz come and see
+I Have Made AN Calculator Come And See
